@@ -49,12 +49,14 @@ Start the process and observe filling, mixing, and discharge operations.
 
 
 
+<img width="1227" height="763" alt="image" src="https://github.com/user-attachments/assets/18de1fa9-d325-43ff-bba5-003d6bb3fa1c" />
 
 
 
 
  
 
+<img width="972" height="763" alt="image" src="https://github.com/user-attachments/assets/21034eca-0354-4966-9b8a-f7f1b38ee9f7" />
 
 
 
